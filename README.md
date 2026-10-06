@@ -7,4 +7,8 @@
   <br>
 <img src="https://i.postimg.cc/DwqwDvzD/Untitled761-20261006125659.png" width="300">
   <br>
-" i dont have a lyric to put here yet "
+" baby please, adore me, adore me! "
+<br>
+<img src="https://i.postimg.cc/1z9hR6Gf/IMG-5227.png" width="100"><img src="https://i.postimg.cc/tT89gJRc/IMG-5228.png" width="100">
+<br>
+<img src="https://i.postimg.cc/9fS6dS3D/IMG-5226.gif" width="530">
