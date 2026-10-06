@@ -29,3 +29,6 @@ VERY fictive heavy.
 <br>
   <br>
 <img src="https://i.postimg.cc/44tY9RCb/IMG-0869.png" width="500">
+<br>
+<br>
+more info in like 5 secs i need to do somethig
