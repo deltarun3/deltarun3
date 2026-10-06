@@ -3,7 +3,7 @@
   <p>
     welcome to my page!! :]
   </p>
-  <img src="https://i.postimg.cc/NMWnWrpw/Untitled762-20261006132503.png" width="500">
+  <img src="https://i.postimg.cc/NMWnWrpw/Untitled762-20261006132503.png" width="600">
   <br>
 <img src="https://i.postimg.cc/DwqwDvzD/Untitled761-20261006125659.png" width="300">
   <br>
