@@ -9,6 +9,23 @@
   <br>
 " baby please, adore me, adore me! "
 <br>
-<img src="https://i.postimg.cc/1z9hR6Gf/IMG-5227.png" width="100"><img src="https://i.postimg.cc/tT89gJRc/IMG-5228.png" width="100">
+<img src="https://i.postimg.cc/9fS6dS3D/IMG-5226.gif" width="500">
 <br>
-<img src="https://i.postimg.cc/9fS6dS3D/IMG-5226.gif" width="530">
+about:
+  <br>
+hello!! i'm charlotte, but i also go by caroline.
+<br>
+i collectively use it/bun/🐾/💉 pronouns. if you don't know how to use those, feel free to ask!
+  <br>
+i'm a minor and ask that anyone over 18 would interact with caution.
+<br>
+i'm new to html, so i apologise if anything on this page appears janky!
+<br>
+i'm a system. if you don't know what that is, feel free to ask!
+<br>
+currently trying to find my classpect!
+<br>
+VERY fictive heavy.
+<br>
+  <br>
+<img src="https://i.postimg.cc/44tY9RCb/IMG-0869.png" width="500">
