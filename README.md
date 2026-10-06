@@ -31,4 +31,7 @@ VERY fictive heavy.
 <img src="https://i.postimg.cc/44tY9RCb/IMG-0869.png" width="500">
 <br>
 <br>
-more info in like 5 secs i need to do somethig
+  pt info:
+very inactive on pt i only log in once every blue moon
+im VERY awkward/shy, w2i
+c+h friendly i dont bite
