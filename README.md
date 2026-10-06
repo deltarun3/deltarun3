@@ -32,6 +32,9 @@ VERY fictive heavy.
 <br>
 <br>
   pt info:
+  <br>
 very inactive on pt i only log in once every blue moon
+  <br>
 im VERY awkward/shy, w2i
+  <br>
 c+h friendly i dont bite
