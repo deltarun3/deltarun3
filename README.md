@@ -35,6 +35,6 @@ VERY fictive heavy.
   <br>
 very inactive on pt i only log in once every blue moon
   <br>
-im VERY awkward/shy, w2i
+im VERY awkward/shy, whisper or boop to int
   <br>
 c+h friendly i dont bite
